@@ -1,2 +1,2 @@
 # Welcome to Pastorakia 
-Yo
+Yo man!
